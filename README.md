@@ -1,1 +1,0 @@
-# PorraFIFAWorldCup2026
